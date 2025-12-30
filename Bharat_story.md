@@ -5,17 +5,18 @@
 
 # Chapter 1: What is Bharatanatyam?
 
-Have you ever watched someone dance so beautifully that you couldn't take your eyes off them? That's what happens when you watch Bharatanatyam! It is one of the oldest and most beautiful classical dances in the whole world. This special dance comes from a state in India called Tamil Nadu, especially from a city called Thanjavur.
+Have you ever watched someone dance so beautifully that you couldn't take your eyes off them? That's what happens when you watch Bharatanatyam! It is one of the oldest and most beautiful classical dances in the whole world.It is an Indian classical dance . This special dance comes from a state in India called Tamil Nadu, especially from a city called Thanjavur.
 
 But wait, what does the name "Bharatanatyam" even mean? Well, there are two cool ways to understand it!
 
-The first way is pretty simple. "Bharat" means India, and "Natyam" means dance. So Bharatanatyam means "The Dance of India." How awesome is that? Our country has its very own special dance!
+The first way is pretty simple. "Bharat" means India, and "Natyam" means dance. So Bharatanatyam means "The Dance of India." 
 
 The second way to understand the name is even more interesting. The word "Bharata" comes from three words put together:
 - **Bha** comes from "Bhava" which means feelings and emotions
 - **Ra** comes from "Raga" which means the tune or melody of the music
-- **Ta** comes from "Tala" which means the beat or rhythm
-
+- **Ta** comes from "Tala" which means the beat or rhythm .
+  Many people call this dance form differently some of them are :
+- Bharatnatyam , Bharataanatyam etc .
 So when you put them all together, Bharatanatyam is a dance that combines feelings, music, and rhythm! Isn't that super cool?
 
 What makes Bharatanatyam really special is that it uses every single part of your body when you dance. Your eyes tell a story, your hands make beautiful shapes called mudras, your feet make amazing sounds, and your face shows different emotions. It's like your whole body becomes a talking, singing, dancing machine!
