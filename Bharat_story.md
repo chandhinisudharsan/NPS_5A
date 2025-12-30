@@ -63,7 +63,7 @@ The Devadasis also created something very important - the **Adavus**. Adavus are
 - **Natta Adavu** - Where you stretch and move
 - **Kuditta Metta Adavu** - Where you jump and stamp
 
-There are more than 100 Adavus! Learning them takes a lot of practice. Dancers practice the same step again and again, sometimes hundreds of times, until they get it perfect. It's like practicing your multiplication tables, but with your feet!
+There are more than 100 Adavus!  Learning them takes a lot of practice.But don't you worry our dance teachers teach us some of them . Dancers practice the same step again and again, sometimes hundreds of times, until they get it perfect. It's like practicing your multiplication tables, but with your feet!
 
 The kings and queens of South India loved Bharatanatyam very much. They would invite dancers to perform in their palaces and give them gifts and prizes. The Maratha kings of Thanjavur were especially famous for supporting this dance. They would hold big dance competitions and festivals. Because of their support, Bharatanatyam became even more beautiful and popular.
 
