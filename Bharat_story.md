@@ -73,13 +73,13 @@ The kings and queens of South India loved Bharatanatyam very much. They would in
 
 But then, something very sad happened. When the British people came to rule India, many things changed. The British didn't understand Indian culture very well. They thought that temple dancing was not good. They made rules that stopped Devadasis from dancing in temples.
 
-In 1910, a law was passed in the Madras Presidency (that's what Tamil Nadu was called back then) that made it very difficult for the traditional dancers to continue their art. Many people stopped learning Bharatanatyam. The dance that had survived for thousands of years was in danger of disappearing!
+In 1910, a law was passed in the Madras Presidency (that's what Tamil Nadu,  Cheenai was called back then) that made it very difficult for the traditional dancers to continue their art. Many people stopped learning Bharatanatyam. The dance that had survived for thousands of years was in danger of disappearing!
 
 Imagine if someone told you that you couldn't play your favorite sport or do your favorite hobby anymore. How sad would you feel? That's how the dancers felt. Many of them had to stop dancing. The beautiful art form was slowly being forgotten.
 
-The temples became quiet. The sound of ankle bells (called Ghungroos) that used to fill the air became silent. The beautiful dance poses carved on temple walls seemed to be crying. It looked like Bharatanatyam would be lost forever.
+The temples became quiet. The sound of ankle bells (called Ghungroos or shalangai) that used to fill the air became silent. The beautiful dance poses carved on temple walls seemed to be crying. It looked like Bharatanatyam would be lost forever.
 
-But wait! This story doesn't end sadly. Because some very brave and smart people decided to fight back and save this beautiful dance. They became superheroes of Bharatanatyam!
+But wait! This story doesn't end sadly. Because some very brave and smart people decided to fight back and save this beautiful dance. They became superheroes of Bharatanatyam! some of them even found and created something from Bharatanatyam .
 
 ---
 
@@ -97,11 +97,11 @@ Can you imagine how brave he was? People laughed at him. They made fun of him. B
 
 He also fought for girls to be able to learn Bharatanatyam. In the 1920s and 1930s, there was a big discussion about whether girls from good families should learn this dance. Krishna Iyer said, "Yes! Everyone should learn this beautiful art!" He started the fight that would eventually save Bharatanatyam.
 
-Sadly, Krishna Iyer passed away in 1968, but his bravery made him one of the biggest heroes in the history of Indian dance.
+Sadly, Krishna Iyer passed away in 1968, but his bravery made him one of the biggest heroes in the history of Indian dance. So friends when you see people dancing and it is funny please don't laugh they could change the world one day and that day you wouuld be mistaken .
 
 ## Rukmini Devi Arundale - The Lady Who Changed Everything
 
-Now, let me tell you about the most famous hero of Bharatanatyam - **Rukmini Devi Arundale**. She was born on February 29, 1904, in Madurai, Tamil Nadu. (Fun fact: February 29 only comes once every four years, so she had a very special birthday!)
+Now, let me tell you about the most famous hero of Bharatanatyam - **Rukmini Devi Arundale**. She was born on February 29, 1904, in Madurai, Tamil Nadu. (Fun fact: February 29 only comes once very four years, so she had a very special birthday!)
 
 When Rukmini Devi was a young girl, she was very interested in spirituality and thinking about life. She got married when she was just 16 years old to a British man named George Arundale. He was much older than her - 42 years old! But he was very kind and supportive.
 
@@ -121,7 +121,7 @@ Rukmini Devi had a beautiful saying: "The greatness of Bharatanatyam lies not me
 
 Rukmini Devi also loved animals very much. She fought for animal rights and wanted everyone to be kind to animals. She became a member of the Rajya Sabha (part of India's Parliament) and worked to make laws to protect animals.
 
-Sadly, Rukmini Devi Arundale passed away on February 24, 1986, in Chennai. But her Kalakshetra school is still running today! It is now called "Kalakshetra Foundation" and is recognized as an "Institute of National Importance" by the Indian government. Thousands of dancers have learned at this school and spread Bharatanatyam all over the world.
+Sadly, Rukmini Devi Arundale passed away on February 24, 1986, in Chennai. But her Kalakshetra school is still running today! It is now called "Kalakshetra Foundation" and is recognized as an "Institute of National Importance" by the Indian government. Thousands of dancers have learned at this school and spread Bharatanatyam all over the world. She did not know how to say thank you to Anna Pavlova without her advice Rukmini Devi Arundale won't be famous .
 
 ---
 
@@ -159,7 +159,7 @@ In the old days, mostly girls learned Bharatanatyam. But not anymore! Today, man
 
 **People of All Ages**
 
-You don't have to be a little kid to start learning Bharatanatyam. Some people start when they are 4 or 5 years old. Others start when they are teenagers. Some even start when they are grown-ups! There are also senior citizens who dance. In Bharatanatyam, age is just a number!
+You  can start learning Bharatanatyam in any age . If you like this dance and you really want to continue it but your friends have stopped learning don't stop nobody is stopping you from learning .  In Bharatanatyam, age is just a number!
 
 **People from Different Countries**
 
