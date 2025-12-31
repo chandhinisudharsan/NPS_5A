@@ -1,11 +1,11 @@
 # The Amazing Story of Bharatanatyam
-## A Dance That Traveled Through Time
+## A Dance That Traveled Through Time [ Bharatanatyam ]
 
 ---
 
 # Chapter 1: What is Bharatanatyam?
 
-Have you ever watched someone dance so beautifully that you couldn't take your eyes off them? That's what happens when you watch Bharatanatyam! It is one of the oldest and most beautiful classical dances in the whole world.It is an Indian classical dance . This special dance comes from a state in India called Tamil Nadu, especially from a city called Thanjavur.
+Have you ever watched someone dance so beautifully that you couldn't take your eyes off them? That's what happens when you watch Bharatanatyam! It is one of the oldest and most beautiful  Indian classical dances in the whole world. This special dance comes from a state in India called Tamil Nadu, especially from a city called Thanjavur.
 
 But wait, what does the name "Bharatanatyam" even mean? Well, there are two cool ways to understand it!
 
